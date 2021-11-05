@@ -1,1 +1,0 @@
-# FATOS-COVID
